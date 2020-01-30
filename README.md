@@ -1,2 +1,2 @@
 # ozdilek
-ANANIN AMI
+Sen anan yani KILLA HAKAN
